@@ -1,1 +1,1 @@
-# Heart welcome to you.
+# Hearty welcome to you.
